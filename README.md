@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @darknight9607
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning coding 
+- 💞️ I’m looking to collaborate on nothing now 
+- 📫 How to reach me email or number 
